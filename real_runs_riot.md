@@ -1,0 +1,6 @@
+# The Real Runs Riot
+
+The time has come to reclaim what is _real_. It has become fashionable to describe the current moment as "post-truth", meaning the narrative has lost interest in the language of truth. The narrative is instead concerned with commitment to one side vs. the other. The idea that there is a single truth in the middle that all partisans are aiming toward is no longer respected. There just isn't any such truth.
+
+In recent years, as I thought through the implications of this change, I moved more and more to thinking that this is not any great loss. The idea of _one single truth_ was always suspect. Abandoning it seems like the right thing to do. However, it did not attend to the more important question of what comes next. A post-truth world will still need to point to something. People are not going to turn into relativists, in the sense of someone who believes that all claims are equally legitimate. People will instead turn from a concern with truth to a concern with reality. I expect that the search for reality, dormant for around 500 years, will come roaring back. But what I mean by "reality" is not how it is often thought of. I'll have to explain what I mean when I talk about a return to the Real as the focus of thought and action. I hope this will clarify why I think that, going forward, we're going to see the real run riot.
+
